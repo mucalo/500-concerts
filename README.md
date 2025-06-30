@@ -8,3 +8,4 @@ Well, here is the list:
 2. **InMusic day 1 (Fontaines DC, Streets, Air)**, Zagreb, 23rd June 2025
 3. **InMusic day 2 (Kiwanuka, Kim Deal, Kasabian)**, Zagreb, 24th June 2025
 4. **InMusic day 3 (St. Vincent, Massive Attack)**, Zagreb, 25th June 2025
+5. **Jam Session @ Academia Ghetto**, Split, 26th June 2025
