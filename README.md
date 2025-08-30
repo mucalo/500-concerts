@@ -1,4 +1,4 @@
-# (8/500) Can I see 500 more concerts in my lifetime?
+# (9/500) Can I see 500 more concerts in my lifetime?
 
 My friend **Krešo**, for my 41st birthday (21st May 2025), said _"Happy birthday, all the luck, love, hapiness bla bla and may we go to 500 more concerts together..."_. Chances of us going to 500 concerts together is zero. But, will I get to see 500 more concerts?
 
@@ -12,3 +12,4 @@ Well, here is the list:
 6. **Alanis Morrisette**, Budapst, Budapest Park, 21st July 2025
 7. **Queens of the Stone Age**, Zagreb, Šalata, 23rd July 2025
 8. **Help! (Beatles tribute)**, Korčula, Plokata, 13th August 2025
+9. **Undercode**, Biker's Beer Factory, Zagreb, 30th August 2025
