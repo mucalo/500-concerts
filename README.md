@@ -1,4 +1,4 @@
-# (13/500) Can I see 500 more concerts in my lifetime?
+# (14/500) Can I see 500 more concerts in my lifetime?
 
 My friend **Krešo**, for my 41st birthday (May 2025), said _"Happy birthday, all the luck, love, hapiness bla bla and may we go to 500 more concerts together..."_. Chances of us going to 500 concerts together is zero. But, will I get to see 500 more concerts?
 
@@ -17,3 +17,5 @@ Well, here is the list:
 11. **The Offspring**, Budapest, MVM Dome, 31st October 2025
 12. **Citizen Dick**, Kaštela, Red Lion Pub, 7th November 2025
 13. **Citizen Dick**, Split, Academia Club Ghetto, 8th November 2025
+14. **J.R.August**, Zagreb, Boogaloo, 13th November 2025
+
