@@ -18,4 +18,4 @@ Well, here is the list:
 12. **Citizen Dick**, Kaštela, Red Lion Pub, 7th November 2025
 13. **Citizen Dick**, Split, Academia Club Ghetto, 8th November 2025
 14. **J.R.August**, Zagreb, Boogaloo, 13th November 2025
-15. 15. **Radiohead**, Bologna, Unipol Arena, 17th November 2025
+15. **Radiohead**, Bologna, Unipol Arena, 17th November 2025
