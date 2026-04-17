@@ -1,4 +1,4 @@
-# (26/500) Can I see 500 more concerts in my lifetime?
+# (28/500) Can I see 500 more concerts in my lifetime?
 
 My friend **Krešo**, for my 41st birthday (May 2025), said _"Happy birthday, all the luck, love, hapiness bla bla and may we go to 500 more concerts together..."_. Chances of us going to 500 concerts together is zero. But, will I get to see 500 more concerts?
 
@@ -30,3 +30,5 @@ Well, here is the list:
 24. **MeleWai**, Zagreb, Grof Melin, 6th March 2026
 25. **Folkestra**, Zagreb, Močvara, 24th March 2026
 26. **T.B.F. & Jazz Orkestar HRT-a**, Zagreb, K.D.Lisinski, 11th April 2026
+27. **Obad**, Zagreb, Grof Melin, 16th April 2026
+28. **Mantes**, Zagreb, Kontesa, 17th April 2026
