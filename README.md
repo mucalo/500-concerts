@@ -33,4 +33,4 @@ Well, here is the list:
 27. **Obad**, Zagreb, Grof Melin, 16th April 2026
 28. **Mantes**, Zagreb, Kontesa, 17th April 2026
 29. **Završni koncerti učenika I. razreda odjela za klavir, čembalo i orgulje**, Zagreb, Glazbena škola Pavla Markovca, 1st June 2026
-30. **KSET Open Air (Haiku Garden, Lelee, Peglica i Komandos, GazorPazorp, RH Space Orchestra, Fujčinela Boys**, Zagreb, livada pored Route 66, 6th June 2026
+30. **KSET Open Air (Haiku Garden, Lelee, Peglica i Komandos, GazorPazorp, RH Space Orchestra, Fujčinela Boys)**, Zagreb, livada pored Route 66, 6th June 2026
