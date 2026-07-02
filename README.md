@@ -1,4 +1,4 @@
-# (34/500) Can I see 500 more concerts in my lifetime?
+# (35/500) Can I see 500 more concerts in my lifetime?
 
 My friend **Krešo**, for my 41st birthday (May 2025), said _"Happy birthday, all the luck, love, hapiness bla bla and may we go to 500 more concerts together..."_. Chances of us going to 500 concerts together is zero. But, will I get to see 500 more concerts?
 
@@ -35,6 +35,7 @@ Well, here is the list:
 29. **Završni koncerti učenika I. razreda odjela za klavir, čembalo i orgulje**, Zagreb, Glazbena škola Pavla Markovca, 1st June 2026
 30. **KSET Open Air (Haiku Garden, Lelee, Peglica i Komandos, GazorPazorp, RH Space Orchestra, Fujčinela Boys)**, Zagreb, plain in front of Route 66, 6th June 2026
 31. **Tricky**, Zagreb, Boogaloo, 13th June 2026
-32. **InMusic day 1 (Manic Street Preachers, KT Tunsall, Jack White)**, Zagreb, Jarun, 22nd July 2026
-33. **InMusic day 2 (Flaming Lips, Jehnny Beth, Gorillaz)**, Zagreb, Jarun, 23rd July 2026
-34. **InMusic day 3 (Idles, Dry Cleaning, Kings of Leon)**, Zagreb, Jarun, 24th July 2026
+32. **InMusic day 1 (Manic Street Preachers, KT Tunsall, Jack White)**, Zagreb, Jarun, 22nd June 2026
+33. **InMusic day 2 (Flaming Lips, Jehnny Beth, Gorillaz)**, Zagreb, Jarun, 23rd June 2026
+34. **InMusic day 3 (Idles, Dry Cleaning, Kings of Leon)**, Zagreb, Jarun, 24th June 2026
+35. **DeeDee Bridgewater**, Ljubljana, Cankarjev dom, 2nd July 2026
