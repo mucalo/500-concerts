@@ -1,4 +1,4 @@
-# (39/500) Can I see 500 more concerts in my lifetime?
+# (40/500) Can I see 500 more concerts in my lifetime?
 
 My friend **Krešo**, for my 41st birthday (May 2025), said _"Happy birthday, all the luck, love, hapiness bla bla and may we go to 500 more concerts together..."_. Chances of us going to 500 concerts together is zero. But, will I get to see 500 more concerts?
 
@@ -43,3 +43,4 @@ Well, here is the list:
 37. **I-Days (System of a Down)**, Milano, Ippodromo, 6th July 2026
 38. **Kries**, Zagreb, Ljeto na Zagrebačkom velesajmu, 3rd September 2026
 39. **Leut Magnetik**, Zagreb, Močvara, 15th October 2026
+40. **Shrimp Bazket (Limp Bizkit tribute) & Piknik Park (Linkin Park tribute)**, Zagreb, Boogaloo, 23rd October 2026
